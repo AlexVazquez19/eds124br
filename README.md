@@ -7,5 +7,5 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/0246cc22-a5b2-4d29-932
 
 ## Week 2 (Repeats)
 
-https://github.com/AlexVazquez19/eds124br/assets/86645097/1069e64e-b6a9-4a3b-94d8-bebfdb9e0147
+https://github.com/AlexVazquez19/eds124br/assets/86645097/31710e87-29f1-4750-92eb-b08ade853040
 
