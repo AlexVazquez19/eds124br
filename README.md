@@ -13,3 +13,7 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/31710e87-29f1-4750-92e
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/84b1a637-ef3d-4893-ac56-6258dba1f734
 
+## Week 3 (Nested Repeats Mouse Program)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/fdd1f172-7264-4bfd-a564-eb8ed9f2053d
+
