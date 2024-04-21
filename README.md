@@ -17,3 +17,6 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/84b1a637-ef3d-4893-ac5
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/fdd1f172-7264-4bfd-a564-eb8ed9f2053d
 
+## Week 3 (Events)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/4b6efc22-90af-4e2e-b7f2-0c258204c1d9
