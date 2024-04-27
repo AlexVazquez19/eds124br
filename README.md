@@ -20,3 +20,8 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/fdd1f172-7264-4bfd-a56
 ## Week 3 (Events)
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/4b6efc22-90af-4e2e-b7f2-0c258204c1d9
+
+## Week 4 (Creating Shapes Using Variables)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/dd414771-34c9-4e32-a3cc-6277f972a21a
+
