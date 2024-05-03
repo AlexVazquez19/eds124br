@@ -25,3 +25,8 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/4b6efc22-90af-4e2e-b7f
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/dd414771-34c9-4e32-a3cc-6277f972a21a
 
+## Week 5 (Conditional Repeats)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/75717656-df30-40ac-8d04-722e4ff167f9
+
+
