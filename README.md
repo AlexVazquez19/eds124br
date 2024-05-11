@@ -29,4 +29,8 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/dd414771-34c9-4e32-a3c
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/75717656-df30-40ac-8d04-722e4ff167f9
 
+## Week 6 (If Else)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/e8cb71e0-b0ac-40bc-9709-26684c1b81fa
+
 
