@@ -33,4 +33,8 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/75717656-df30-40ac-8d0
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/e8cb71e0-b0ac-40bc-9709-26684c1b81fa
 
+## Week 7 (Nested If Else)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/68095cde-657c-44a7-a2b3-555c5b3a5520
+
 
