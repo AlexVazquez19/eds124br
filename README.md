@@ -37,4 +37,7 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/e8cb71e0-b0ac-40bc-970
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/68095cde-657c-44a7-a2b3-555c5b3a5520
 
+## Week 8 (Compound Conditionals)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/c3034979-8108-4189-9a34-a1fb4df3372b
 
