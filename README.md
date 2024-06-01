@@ -41,3 +41,7 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/68095cde-657c-44a7-a2b
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/c3034979-8108-4189-9a34-a1fb4df3372b
 
+## Week 9 (Abstraction)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/6209c7bd-697e-473f-9f0c-e6c6cb41565b
+
