@@ -45,3 +45,10 @@ https://github.com/AlexVazquez19/eds124br/assets/86645097/c3034979-8108-4189-9a3
 
 https://github.com/AlexVazquez19/eds124br/assets/86645097/6209c7bd-697e-473f-9f0c-e6c6cb41565b
 
+## Week 10 (Lists)
+
+https://github.com/AlexVazquez19/eds124br/assets/86645097/6d2a3a5d-8840-48c9-a751-5286a9ad5db0
+
+
+
+
